@@ -121,11 +121,6 @@ Follow me on LinkedIn : [![](https://img.shields.io/badge/LinkedIn-0077B5?style=
 ihewfi
 dewljf
 wefugo
-efug
-wfueo
-uigfew
-ougfew 
-hwcc
-jnwe
+
 
 
